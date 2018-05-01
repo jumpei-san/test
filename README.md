@@ -1,3 +1,3 @@
 # test
 # test dayo
-•ÒW‚µ‚Ä‚Ü‚Á‚¹
+# Not Japanease
